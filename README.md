@@ -1,3 +1,3 @@
-- Hi, I’m @hackermanyacapin
-- I’m interested in cheating in roblox and minecraft 
-- I’m cracking vape v4 and vape lite 
+- Hi, I’m @SKID
+- I’m Minecraft SKIDDER
+- vape v4 and vape lite lol
