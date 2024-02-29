@@ -1,3 +1,1 @@
-- Hi, I’m @SKID
-- I’m Minecraft SKIDDER
-- vape v4 and vape lite lol
+- Fuck you gIthub
